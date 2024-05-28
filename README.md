@@ -6,7 +6,7 @@
 - Estou Sofrendo com o alura 😊
 - Estou me desenvolvendo com a linguagem javascript
 
-### FELIZ MAVIDAD🥇
+### FELIZ NAVIDAD🥇
 
 ![](https://media.tenor.com/LseAluK4K4AAAAAM/feliz-navidad-but-with-text.gif)
 
